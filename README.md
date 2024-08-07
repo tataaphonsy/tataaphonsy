@@ -10,5 +10,5 @@ Meu nome é tataphonsy
 
 - tataaphonsy@gmail.com
 
-![](https://tenor.com/pt-BR/view/computador-afonsinha-gif-20508355)
+![](https://media1.tenor.com/m/NhkobvY3XmcAAAAC/agatha-nunes.gif)
 
