@@ -10,6 +10,7 @@ Meu nome é tataphonsy
 
 - tataaphonsy@gmail.com
 
-![Uploading image.png…]()
+![Uploading image.png…](![image](https://github.com/user-attachments/assets/339f116e-70b9-41be-8741-41c978aaaa8b)
+)
 
 
