@@ -10,5 +10,5 @@ Meu nome é tataphonsy
 
 - tataaphonsy@gmail.com
 
-![](https://teclando-tuitando-mexendo-no-computador-mandando-mensagem-escrevendo-gif)
+![](https://media1.tenor.com/m/qmkJbqRrQ3wAAAAC/teclando-tuitando.gif)
 
